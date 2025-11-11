@@ -1,1 +1,0 @@
-Solar systemIt formed about 4.6 billion years ago from a group of gas and dust in space called Solar nebula This cloud collapses by gravity, causing the core to overheat, causing a reaction Nuclear fusion become Sun Meanwhile, the remaining matter in the Sun's rotating disk has coalesced into planets, dwarf planets, and moons 
